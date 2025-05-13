@@ -33,7 +33,7 @@ Fun facts about me:
   - Favourite pasta: pasta all'amatriciana.
 
 📩 <br>
-You can reach me on my personal email: sennenschoonderwaldt (at) gmail.com or my student email: 22049428 (at) student.hhs.nl ! LinkedIn is also linked down below. 
+You can reach me on my personal email: sennenschoonderwaldt (at) gmail.com or my student email: 22049428 (at) student.hhs.nl! LinkedIn is also linked in the bio!
 <br>
 
 
