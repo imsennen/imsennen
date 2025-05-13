@@ -21,7 +21,6 @@ Technologies I've learned about in school:
   - Data Science (Python, PowerBI, AI)
   - Databases (SQL, Server)
   - Projects (Agile, Scrum)
-<br>
 
 ✨<br>
 Fun facts about me:
@@ -32,7 +31,6 @@ Fun facts about me:
   - Mosted liked song right now: https://www.youtube.com/watch?v=xvFZjo5PgG0
   - Length: 176cm tall (that's 5'9" for the Americans).
   - Favourite pasta: pasta all'amatriciana.
-<br>
 
 📩 <br>
 You can reach me on my personal email: sennenschoonderwaldt (at) gmail.com or my student email: 22049428 (at) student.hhs.nl ! LinkedIn is also linked down below. 
